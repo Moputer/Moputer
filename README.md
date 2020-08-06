@@ -14,3 +14,15 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+![我在美国打篮球](https://upload-images.jianshu.io/upload_images/9305757-2663249dffd36060.gif?imageMogr2/auto-orient/strip)
+![我在美国打篮球](https://upload-images.jianshu.io/upload_images/9305757-2663249dffd36060.gif?imageMogr2/auto-orient/strip)
+![我在美国打篮球](https://upload-images.jianshu.io/upload_images/9305757-2663249dffd36060.gif?imageMogr2/auto-orient/strip)
+![我在美国打篮球](https://upload-images.jianshu.io/upload_images/9305757-2663249dffd36060.gif?imageMogr2/auto-orient/strip)
+![我在美国打篮球](https://upload-images.jianshu.io/upload_images/9305757-2663249dffd36060.gif?imageMogr2/auto-orient/strip)
+![我在美国打篮球](https://upload-images.jianshu.io/upload_images/9305757-2663249dffd36060.gif?imageMogr2/auto-orient/strip)
+![我在美国打篮球](https://upload-images.jianshu.io/upload_images/9305757-2663249dffd36060.gif?imageMogr2/auto-orient/strip)
+![我在美国打篮球](https://upload-images.jianshu.io/upload_images/9305757-2663249dffd36060.gif?imageMogr2/auto-orient/strip)
+![我在美国打篮球](https://upload-images.jianshu.io/upload_images/9305757-2663249dffd36060.gif?imageMogr2/auto-orient/strip)
+![我在美国打篮球](https://upload-images.jianshu.io/upload_images/9305757-2663249dffd36060.gif?imageMogr2/auto-orient/strip)
+![我在美国打篮球](https://upload-images.jianshu.io/upload_images/9305757-2663249dffd36060.gif?imageMogr2/auto-orient/strip)
+![我在美国打篮球](https://upload-images.jianshu.io/upload_images/9305757-2663249dffd36060.gif?imageMogr2/auto-orient/strip)
